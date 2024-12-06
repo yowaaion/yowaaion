@@ -26,8 +26,8 @@
 ## 📫 How to Reach Me:
 
 - ✉ **Email**: noctiondri@gmail.com  
-- 🌍 **Telegram**: [Your LinkedIn](https://t.me/noctiflore)  
-- 🐦 **Instagram**: [Your Instagram](https://www.instagram.com/yowaaion/)  
+- 🌍 **Telegram**: [My Telegram](https://t.me/noctiflore)  
+- 🐦 **Instagram**: [My Instagram](https://www.instagram.com/yowaaion/)  
 
 ## 😄 Pronouns:  
 
